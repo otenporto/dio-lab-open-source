@@ -20,3 +20,4 @@
 
 ## Minhas contribuições
 
+Sou novo em tec e ainda não contribui com projetos, mas em breve isso vai mudar! :D 
